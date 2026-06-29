@@ -1,4 +1,4 @@
-# 
+# Nuevo A web AI object detection plantillas. Con seguridad de la IA y procesamiento de lenguaje natural — optimizado para el máximo rendimiento.
 
 
 
